@@ -1,2 +1,2 @@
 # onlinekumar.github.io
-personal hoe page of Manoj Kumar
+personal home page of Manoj Kumar
